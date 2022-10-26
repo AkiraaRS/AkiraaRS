@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AkiraaRS
+- 👀 Im very interested in roblox scripting, and making it a goal to have this as more then a hobby very soon.
+- 🌱 I’m currently learning new languages that'll help me out when it comes to job applications, and such
+- 💞️ I’m looking to collaborate on more games that are more hands on, and aren't trashy weird games
+- 📫 How to reach me; Discord (Akiraa#0009)
